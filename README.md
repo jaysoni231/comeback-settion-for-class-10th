@@ -1,1 +1,0 @@
-# comeback-settion-for-class-10th
